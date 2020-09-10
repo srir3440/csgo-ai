@@ -2,7 +2,7 @@ Team Name: Fieeer
 
 Contact Information:
 
-E-mail - srir3440@gmail.com
+E-mail - sriramr3440@gmail.com
 Country - India
 
 Description:
